@@ -2,6 +2,10 @@
 
 **Autor:** Junior Javier Santos Pérez — Matrícula 2024-1599
 
+
+Enlace YouTube: https://www.youtube.com/watch?v=_wrmKEE3XVI
+
+
 ---
 
 ## 1. Objetivo de la red
